@@ -1,1 +1,2 @@
-# O-artista
+# Rainy Nhaiany Duarte
+Rainy Nhaiany Duarte
